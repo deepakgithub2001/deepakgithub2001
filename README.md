@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Deepak! @deepakgithub2001
-- 👀 I’m interested in codiing, cricket and spending time with loved ones.
+- 👀 I’m interested in coding, cricket and spending time with loved ones.
 - 🌱 I’m currently learning Full-Stack Web Developement.
 - 💞️ I’m looking to collaborate on Javascript.
 - 📫 You can reach me here. Gmail- deepakchaudhary.cse2001@gmail.com 
