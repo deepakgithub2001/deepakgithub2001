@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Javascript.
 - 📫 You can reach me here. Gmail- deepakchaudhary.cse2001@gmail.com 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Believe on Strange, But not a Jigri Friend they Never shy to roast you..
+- ⚡ Fun fact: Believe on strange, but not a jigri friend they never shy to roast you..
 - Thoughts : Be on the totally rule of Discipline instead of rule of Motivation. 
 - #dreaming  #learneveryday
 <!---
