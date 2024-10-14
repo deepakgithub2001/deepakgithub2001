@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Deepak! @deepakgithub2001
 - 👀 I’m interested in coding, cricket and spending time with loved ones.
 - 🌱 I’m currently learning Full-Stack Web Developement.
-- 💞️ I’m looking to collaborate on Javascript.
+- 💞️ I’m looking to collaborate on JavaScript.
 - 📫 You can reach me here. Gmail- deepakchaudhary.cse2001@gmail.com 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Believe on strange, but not a jigri friend they never shy to roast you..
